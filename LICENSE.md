@@ -1,4 +1,4 @@
-# 
+# ProtonVPN for PC | ProtonVPN for Windows exclusive Plugin: server-locations & no-logs-policy offers the most advanced ProtonVPN for PC | ProtonVPN for Windows plugin, with
 
 
 
